@@ -7,5 +7,4 @@
 - 🎮 amo jogar
    ]
 
-  [](https://media.tenor.com/RdCDuFAl86EAAAAM/heart-beat.gif)
-  
+  [](https://media.tenor.com/Z3MLscFkWMgAAAAM/goat.gif)
